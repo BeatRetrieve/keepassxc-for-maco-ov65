@@ -1,4 +1,4 @@
-
+Get the ultimate KeePassXC for macOS extension with KeePassXC for macOS automatic Extension: malware-scanning & emergency-access. Featuring malware-scanning and emergency-access,
 
 
 
